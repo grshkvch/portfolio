@@ -1,1 +1,1 @@
-https://rolling-scopes-school.github.io/grshkvch/portfolio/
+https://grshkvch.github.io/portfolio/
