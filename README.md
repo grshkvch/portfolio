@@ -1,1 +1,1 @@
-https://rolling-scopes-school.github.io/grshkvch-JSFEPRESCHOOL/portfolio/
+https://rolling-scopes-school.github.io/grshkvch/portfolio/
