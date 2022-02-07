@@ -1,1 +1,1 @@
-https://grshkvch.github.io/portfolio/
+https://grshkvch.github.io/portfolio/portfolio
